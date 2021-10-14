@@ -1,4 +1,4 @@
-### Hi there 🙋🏻‍♂️
+### Hi guys 🙋🏻‍♂️
 I'm a Software Developer with more than six years of experience in designing, developing, and managing complex applications and internal frameworks.
 
 You can catch me 🚀 if you are eager and willing 🤷🏻‍♂️ and also find all about me through my personal website that exists at my account info.
